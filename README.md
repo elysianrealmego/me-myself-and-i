@@ -14,3 +14,9 @@
 
 
 ![h](https://files.catbox.moe/q8fv3y.GIF)if im offtb and might not rsp,wsp ,,!!
+
+
+![h](https://files.catbox.moe/q8fv3y.GIF)
+also uhh read my straw/rentry pls :3 ?!
+
+![h](https://files.catbox.moe/0twenb.png)
